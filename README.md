@@ -147,3 +147,4 @@ A side interest alongside development — a few personal shots from drone flight
 *Open to collaborating on web projects, aerial content, or design work.*
 
 </div>
+ 
